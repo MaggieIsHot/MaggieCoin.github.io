@@ -1,2 +1,2 @@
-# MaggieCoin.github.io
+# MaggieIsHot.github.io
 Maggie Coin Website
